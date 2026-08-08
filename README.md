@@ -1,1 +1,1 @@
-a mini summary of my work, placed in a website
+a mini summary of who i am, placed in a website
